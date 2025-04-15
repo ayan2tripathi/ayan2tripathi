@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ayan Tripathi!
-- 👀 I’m interested in learning new things relating to programming and finance, along with playing and watching basketball!
+- 👀 I’m interested in economics and all things basketball, mainly playing and watching my childhood team, the Minnesota Timberwolves!
 - 🌱 I’m currently learning the fundamentals to programming and finance!
 - 📫 You can reach me by shooting me an email @ trip.ayan911@gmail.com!
 - ⚡ As a fun fact, I have a furball of energy at home; that is, a lovely cavoodle!
