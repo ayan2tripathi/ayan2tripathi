@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ayan Tripathi!
+- 👋 Hi, I’m Ayan Tripathi, a first-year student @ UNSW, studying Commerce/Computer Science!
 - 👀 I’m interested in learning and teaching economics in addition to basketball, mainly playing and watching my childhood team, the Minnesota Timberwolves!
 - 🌱 I’m currently learning the fundamentals to programming and finance!
 - - ⚡ As a fun fact, I have a furball of energy at home; that is, a lovely cavoodle!
