@@ -1,1 +1,1 @@
-Hi! I am Ayan Tripathi, a first year student @ UNSW studying Commerce/Computer Science and am expected to graduate in 2028! Currently, I am learning the fundamentals to programming and finance, whilst teaching economics to current year 11 and 12 high school students! You can reach me by sending an email over @ trip.ayan911@gmail.com or shooting a message on LinkedIn!
+Hi! I am Ayan Tripathi, a first year student @ UNSW studying Commerce/Computer Science and am expected to graduate in 2028!
